@@ -1,5 +1,6 @@
 # fortune-jkrandosilly
 **WARNING: this file contains things that are not suitable for younger audiences, include: strong language, sexual themes, and severe brainrot.**
+**NOW ON CODEBERG! STILL AS DUMB AS EVER!**
 
 The worst quote pack in UNIX history, ever.
 
