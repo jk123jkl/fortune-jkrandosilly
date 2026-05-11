@@ -1,7 +1,7 @@
 # fortune-jkrandosilly
 **WARNING: this pack contains things that are not suitable for younger audiences, include: strong language, sexual themes, and severe brainrot.**
 
-**NOW ON CODEBERG! STILL AS DUMB AS EVER!**
+**I'm primarily updating this through [codeberg](https://codeberg.org/jk123jk/fortune-jkrandosilly), with [github](https://github.com/jk123jkl/fortune-jkrandosilly) being a mirror to that. Remember to give feedback on the codeberg reop (unless you're on codeberg then hi you are here). Tho IDK who would want to do that...**
 
 The worst quote pack in UNIX history, ever.
 
