@@ -1537,6 +1537,8 @@ What is your green???
 
 >Meet n' Fuck Kingdom Steve!
 
+Meet n' HUH????????????
+
 ## 193.
 
 >better shit in the sink
@@ -1570,6 +1572,8 @@ AAA
 ## 198.
 
 >PEGGLE 2!
+
+and the crowd go mild
 
 ## 199.
 
@@ -1643,6 +1647,8 @@ This one was on the 666th line.
 
 >it's morbing time
 
+did you remember the 2022 sony picture marvel movie Morbius
+
 ## 212.
 
 >HAHAHAHA
@@ -1675,6 +1681,7 @@ type it in your calculator
 >
 >BUSTER WOLF!!!!!
 
+Oh Terry Bogard that's nice than- WOAAAAAAAAAAA
 
 ## 217.
 
@@ -1687,6 +1694,8 @@ Thank you Flowery Deltarune Ch.5
 ## 218.
 
 >HERE I COME SAN FRANDISCO!!!!!!!!!!
+
+Thanks again Flowery Deltarune Ch.5
 
 ## 219.
 
@@ -1708,15 +1717,27 @@ Another Fesh Pince
 
 >Objection!
 
+You do that a lot in Ace Attorney.
+
 ## 222.
 
 >Oh I assure you it's quite based.
+
+That is real.
+
+Phoenix did say that.
+
+Play AA4 to find out.
 
 ## 223.
 
 >You want fun?
 >
 >WARIO SHOW YOU FUN
+
+Oh
+
+You just summoned the wario apprantice
 
 ## 224.
 
@@ -1726,6 +1747,12 @@ Another Fesh Pince
 
 >Dr. Robotnic's MEAN BEAN MACHINE
 
+It's puyo puyo
+
+On the Sega Genesis
+
+With the AoStH skin
+
 ## 226.
 
 >Inside you are two wolves
@@ -1733,3 +1760,27 @@ Another Fesh Pince
 ## 227.
 
 >WAKE UP
+
+STOP NAPPING
+GET THE FUCK OUT OF YOUR BED
+
+## 228.
+
+>goop is free from bucket
+
+[(the poster)](https://bsky.app/profile/gizmouse.bsky.social)
+
+What a deal!
+
+A tiny ass mouse cosplay as a video game deals account on April Fools 2026.
+
+## 229.
+
+>SCRIB DOON
+
+Translation: Write it down
+
+It's Biddi Blas!
+
+(From Star Wars Galactic Racers)
+
