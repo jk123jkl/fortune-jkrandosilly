@@ -1784,3 +1784,49 @@ It's Biddi Blas!
 
 (From Star Wars Galactic Racers)
 
+## 230.
+
+>Lamp Oil
+>
+>Rope
+>
+>BOMBS
+>
+>You want it?
+>
+>It's yours my friend
+>
+>As long as you have enough rupees
+
+Sorry Link
+
+I can't give credit
+
+Come back when you're a little
+
+mmmmmmmmmmmmmmm
+
+richer
+
+
+(How long have I not added morshu in this?)
+
+## 231.
+
+>OOPS
+>
+>you have to put the CD in your computer
+
+[ref](https://www.youtube.com/watch?v=vmTF088r2DI)
+
+This is what happens if you don't put your Lego Island Disc in your PC when booting up the game.
+
+## 232.
+
+>BALLS OVER
+
+[ref 1](https://www.youtube.com/watch?v=Kp4KSpMPtsY)
+
+[ref 2](https://youtu.be/ukU_YwHg3G8?t=3392)
+
+More vsauce joey in your butt
